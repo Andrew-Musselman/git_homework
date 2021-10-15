@@ -5,3 +5,8 @@ Strategy 1 - Color coded note taking
 Strategy 2
 
 Shoutout to my husband Jacob who has been my rock
+
+the siri button is incredibly inconvenient
+
+
+ 
